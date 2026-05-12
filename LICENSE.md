@@ -1,4 +1,4 @@
-#  
+#  hidden welcome to bloxburg Script is the best welcome to bloxburg Script, featuring aimbot and teleport. Safe and powerful for all your needs.
 
 
 
